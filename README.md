@@ -1,1 +1,0 @@
-# jhosmar.github.io
